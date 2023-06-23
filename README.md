@@ -2,4 +2,4 @@
 
 Beste,
 
-Mocht u graag de code bekijken gelieve contact op te nemen.
+Mocht u graag de code inzien gelieven dan contact op te nemen.
