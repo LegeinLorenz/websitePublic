@@ -1,5 +1,5 @@
 # websitePublic
 
-Beste,
+Hi,
 
-Mocht u graag de code inzien gelieve dan contact op te nemen.
+If you would like to view the code, please contact me.
